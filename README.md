@@ -2,4 +2,4 @@
 - Software Engineer and that👌.
 - مصر هي امي، نيلها هو دمي🎶🎵
 - Es hora de comer😖
-- お前をずっと愛している
+- お前をずっと愛している🖤
